@@ -22,8 +22,9 @@ custom_fields:
 
 ---
 
-"So we are always confident, knowing that while we are at home in the body we are absent from the Lord. 7 For we walk by faith, not by sight. 8 We are confident, yes, well pleased rather to be absent from the body and to be present with the Lord.9 Therefore we make it our aim, whether present or absent, to be well pleasing to Him. 10 For we must all appear before the judgment seat of Christ, that each one may receive the things done in the body, according to what he has done, whether good or bad. "2 Corinthians 5:6-10
-
+```
+*** "So we are always confident, knowing that while we are at home in the body we are absent from the Lord. 7 For we walk by faith, not by sight. 8 We are confident, yes, well pleased rather to be absent from the body and to be present with the Lord.9 Therefore we make it our aim, whether present or absent, to be well pleasing to Him. 10 For we must all appear before the judgment seat of Christ, that each one may receive the things done in the body, according to what he has done, whether good or bad."*** 2 Corinthians 5:6-10
+```
 Recently had a situation that made me stop and ask my self was I trying to hard. Why do we try too hard? Is it to have a sense of belonging, to gain attention, to compete with others, we all have different reasons. In almost every case they are not good reasons.
 So what are some of the primary reasons we try to hard. In todays world with the constant visibility that social media gives. TV shows and movies give a façade of what our lives should look like. We all have fallen into one or more of these traps.
 
