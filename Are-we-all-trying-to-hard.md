@@ -18,7 +18,7 @@ taxonomy:
 
 custom_fields:
 
-    field1: value 22
+    field1: value 
 
 ---
 
