@@ -51,23 +51,27 @@ So what are some of the primary reasons we try to hard. In todays world with the
 - We know people that have good intention and truly want the best for people. Most people like this are lacking of introspection and conscience. But there are a people that are is too introspective, too self-critical, and too unwilling to give themselves the benefit of the doubt that they would give a total stranger. These people can become spiritually numb. These type of people tend to forget that Jesus gave us a pardon and peace for all our sins. These people that are trying too hard typically live in constant fear and sense of judgement. In my search of the bible it shows us ways and answers to deal with this. Surely the better way is to live. Yes, we are sinful people but people who have been loved, redeemed, and secured to God through the work of Jesus can rest peacefully.
 
 
-“God made him who had no sin to be sin for us, so that in him we might become the righteousness of God.” 2 Corinthians 5:21
+> “God made him who had no sin to be sin for us, so that in him we might become the righteousness of God.”
+> > **2 Corinthians 5:21**
 
 
 God ask us to name and confess our sins but with gratitude rather than in fear of rejection.
 
 
-“ This is the message we have heard from him and declare to you: God is light; in him there is no darkness at all. 6 If we claim to have fellowship with him and yet walk in the darkness, we lie and do not live out the truth. 7 But if we walk in the light, as he is in the light, we have fellowship with one another, and the blood of Jesus, his Son, purifies us from all sin. 8 If we claim to be without sin, we deceive ourselves and the truth is not in us. 9 If we confess our sins, he is faithful and just and will forgive us our sins and purify us from all unrighteousness. 10 If we claim we have not sinned, we make him out to be a liar and his word is not in us.” 1 John 1:5-10
+>“This is the message we have heard from him and declare to you: God is light; in him there is no darkness at all. 6 If we claim to have fellowship with him and yet walk in the darkness, we lie and do not live out the truth. 7 But if we walk in the light, as he is in the light, we have fellowship with one another, and the blood of Jesus, his Son, purifies us from all sin. 8 If we claim to be without sin, we deceive ourselves and the truth is not in us. 9 If we confess our sins, he is faithful and just and will forgive us our sins and purify us from all unrighteousness. 10 If we claim we have not sinned, we make him out to be a liar and his word is not in us.”
+> **1 John 1:5-10**
 
 
-“My dear children, I write this to you so that you will not sin. But if anybody does sin, we have an advocate with the Father—Jesus Christ, the Righteous One. 2 He is the atoning sacrifice for our sins, and not only for ours but also for the sins of the whole world.” 1 John 2:1-2
+> “My dear children, I write this to you so that you will not sin. But if anybody does sin, we have an advocate with the Father—Jesus Christ, the Righteous One. 2 He is the atoning sacrifice for our sins, and not only for ours but also for the sins of the whole world.”
+> **1 John 2:1-2**
 
 
 So we should not presume grace; but be grateful for it. Do not be cavalier about failure; confess it and move on.
 Remember the story Jesus told about the man who tried so hard to be holy and could name the steps of progress he had made — thankful that he wasn't like the sinful other man in the story? The other person in the story was anything but holy, but he went home at peace with God for confessing his unworthiness! His confessional and prayerful attitude seems to be at the heart of true holiness — the holiness that God himself seeks and honors in us
 The Parable of the Pharisee and the Tax Collector
 
-"To some who were confident of their own righteousness and looked down on everyone else, Jesus told this parable: 10 “Two men went up to the temple to pray, one a Pharisee and the other a tax collector. 11 The Pharisee stood by himself and prayed: ‘God, I thank you that I am not like other people—robbers, evildoers, adulterers—or even like this tax collector. 12 I fast twice a week and give a tenth of all I get.’ 13 “But the tax collector stood at a distance. He would not even look up to heaven, but beat his breast and said, ‘God, have mercy on me, a sinner.’ 14 “I tell you that this man, rather than the other, went home justified before God. For all those who exalt themselves will be humbled, and those who humble themselves will be exalted.” Luke 18:9–14
+>"To some who were confident of their own righteousness and looked down on everyone else, Jesus told this parable: 10 “Two men went up to the temple to pray, one a Pharisee and the other a tax collector. 11 The Pharisee stood by himself and prayed: ‘God, I thank you that I am not like other people—robbers, evildoers, adulterers—or even like this tax collector. 12 I fast twice a week and give a tenth of all I get.’ 13 “But the tax collector stood at a distance. He would not even look up to heaven, but beat his breast and said, ‘God, have mercy on me, a sinner.’ 14 “I tell you that this man, rather than the other, went home justified before God. For all those who exalt themselves will be humbled, and those who humble themselves will be exalted.”
+> **Luke 18:9–14**
 
 Remember the three beautiful stories about the joy of salvation when sinners are found, returned to where they belong, and turn from their past life of rebellion and are welcomed back into the family of God? They were told to sinful people who were drawing near Jesus to hear him and turn their lives back to God !
 
@@ -91,29 +95,34 @@ There are times in life where our well-intentioned efforts are actually getting 
 ## You are trying to fill promises that no human can
 God created us and wants us to accomplish his will on earth. He tells us that we will have to work. But the one thing we can be assured of is that God does not want us to accept responsibility for things that only God can accomplish. He gives us an example of this with Abraham and Sarah.
 
-“And I will make of you a great nation, and I will bless you and make your name great, so that you will be a blessing. I will bless those who bless you, and him who dishonors you I will curse, and in you all the families of the earth shall be blessed.” Genesis 12:2
+> “And I will make of you a great nation, and I will bless you and make your name great, so that you will be a blessing. I will bless those who bless you, and him who dishonors you I will curse, and in you all the families of the earth shall be blessed.”
+> **Genesis 12:2**
 
 God made this promise, but Abraham and Sarah became impatient and then tried to fulfill God’s promise in their own power. Since Sarah was getting old and still had no child, they tried to produce an heir through Sarah’s servant, Hagar, But this was not God’s plan. God’s promises can only be produced through God’s power.
 
-“The Lord said to Abraham, ‘Why did Sarah laugh and say, “Shall I indeed bear a child, now that I am old?” Is anything too hard for the Lord?’” Genesis 18:13-14
+> “The Lord said to Abraham, ‘Why did Sarah laugh and say, “Shall I indeed bear a child, now that I am old?” Is anything too hard for the Lord?’”
+>  **Genesis 18:13-14**
 
 The main take way is that God could be telling us to stop trying so hard and allow him to step in and accomplish his plan. But we are impatient human that want instant gratification. Nothing wrong wanting good things in life. We all want a good marriage, career advancements, overcome sinful ways, healing from trauma, reconciling with someone we hurt. But to be able to accomplish these things. We will need to trust in faith and do our part. Then turn it over to God and allow him to complete it. It is extremely important that we do not try to get ahead of God. We do have to walk though the doors that God opens to receive what he has planned for us. But we have to wait for God to open the doors before we walk though them. Forcing the doors open will only result in delayed results and God using that as an opportunity to teach us a lesson. That most of us will not learn on the first try.
 
 ## We are fearful of our own inabilities.
 God works in seemingly strange and mystical ways. God does not call on us to do things that we can do with our human strength. He wants us to accomplish things that we can only succeed in with his strength presented though us. A great example of this is what God said to Gideon
 
-"And the Lord turned to him and said, ‘Go in this might of yours and save Israel from the hand of Midian; do not I send you?’ 15 And he said to him, ‘Please, Lord, how can I save Israel? Behold, my clan is the weakest in Manasseh, and I am the least in my father’s house.’ 16 And the Lord said to him, ‘But I will be with you, and you shall strike the Midianites as one man.’” Judges 6:14-16
+> "And the Lord turned to him and said, ‘Go in this might of yours and save Israel from the hand of Midian; do not I send you?’ 15 And he said to him, ‘Please, Lord, how can I save Israel? Behold, my clan is the weakest in Manasseh, and I am the least in my father’s house.’ 16 And the Lord said to him, ‘But I will be with you, and you shall strike the Midianites as one man.’”
+> **Judges 6:14-16**
 
 God will always call us to accomplish things that you can never do unless he is right by our side. We will always be fearful if you focus on our own abilities because we will know we are not capable of doing what we feel called to do. To be honest we are not capable. No human is. But with God all things are possible
 
-“ Jesus looked at them and said, “With man this is impossible, but with God all things are possible.”” Matthew 19:26
+> “ Jesus looked at them and said, “With man this is impossible, but with God all things are possible.”” 
+> **Matthew 19:26**
 
 Because we are focusing too much on our self we are leaving in fear, God is calling us to focus on him more so faith can then fill us instead fear
 
 ## You don’t know what to pray for anymore.
 We do not always know what to do nor what we should not do. We differently do not know what will happen next. There are times that we pray so much that we don’t know what or why we should pray any more. But God tell us to live by faith,
 
-“Now faith is the assurance of things hoped for, the conviction of things not seen” Hebrews 11:1
+> “Now faith is the assurance of things hoped for, the conviction of things not seen”
+> **Hebrews 11:1**
 
 You may not even know what to pray, but if you know the Holy Spirit is there to intercede for you, you know enough. Trust him always, for even when you are at a loss for words, God is always there to take it. We just having to be willing to give it to him and trust that he will do the right things. Once we give it over to God we should leave it and not revisit it. We have to LET IT GO. Try and remember the song.
 
@@ -127,22 +136,26 @@ I don't care what they're going to say
 
 These lyrics are true and follows Gods word. Once you have done your part. Let it go. When you slam the door. Let it go and don’t worry about what anyone say’s or does.
 
-“Likewise the Spirit helps us in our weakness. For we do not know what to pray for as we ought, but the Spirit himself intercedes for us with groaning too deep for words.” Romans 8:26
+> “Likewise the Spirit helps us in our weakness. For we do not know what to pray for as we ought, but the Spirit himself intercedes for us with groaning too deep for words.”
+> **Romans 8:26**
 
 
 So to answer the question do we try to hard?. YES we do, Some people try so hard that it is holding them back from reaching the goals they set out to achieve. Some people try so hard and get so caught up in doing what they believe is right that to miss what God wants us to do. We all over look the signs that God put in front of us because we get so caught up doing it our way.
 
 
-“Whatever you do, do it from the heart for the Lord and not for people. You know that you will receive an inheritance as a reward. You serve the Lord Christ.” COLOSSIANS 3:23-24
+> “Whatever you do, do it from the heart for the Lord and not for people. You know that you will receive an inheritance as a reward. You serve the Lord Christ.” > **Colossians 3:23-24**
 
 
-”Commit your work to the Lord, and your plans will succeed.” PROVERBS 16:3
+> ”Commit your work to the Lord, and your plans will succeed.” 
+> **Proverbs 16:3**
 
 
 So keep trying. Just don't try "too hard" it could be your downfall. Make sure we are not trying so hard we can not see the signs the God is giving us to give our problems, our goals, our plans to Him.
 
 
-“Cast your cares on the LORD and he will sustain you; he will never let the righteous be shaken.” Psalms 55:22
+> “Cast your cares on the LORD and he will sustain you; he will never let the righteous be shaken.”
+> **Psalms 55:22**
 
-“No one can serve two masters. Either you will hate the one and love the other, or you will be devoted to the one and despise the other. You cannot serve both God and money.25 “Therefore I tell you, do not worry about your life, what you will eat or drink; or about your body, what you will wear. Is not life more than food, and the body more than clothes? 26 Look at the birds of the air; they do not sow or reap or store away in barns, and yet your heavenly Father feeds them. Are you not much more valuable than they? 27 Can any one of you by worrying add a single hour to your life? 28 “And why do you worry about clothes? See how the flowers of the field grow. They do not labor or spin. 29 Yet I tell you that not even Solomon in all his splendor was dressed like one of these. 30 If that is how God clothes the grass of the field, which is here today and tomorrow is thrown into the fire, will he not much more clothe you—you of little faith? 31 So do not worry, saying, ‘What shall we eat?’ or ‘What shall we drink?’ or ‘What shall we wear?’ 32 For the pagans run after all these things, and your heavenly Father knows that you need them. 33 But seek first his kingdom and his righteousness, and all these things will be given to you as well. 34 Therefore do not worry about tomorrow, for tomorrow will worry about itself. Each day has enough trouble of its own." Matthew 6:24-34
+> “No one can serve two masters. Either you will hate the one and love the other, or you will be devoted to the one and despise the other. You cannot serve both God and money.25 “Therefore I tell you, do not worry about your life, what you will eat or drink; or about your body, what you will wear. Is not life more than food, and the body more than clothes? 26 Look at the birds of the air; they do not sow or reap or store away in barns, and yet your heavenly Father feeds them. Are you not much more valuable than they? 27 Can any one of you by worrying add a single hour to your life? 28 “And why do you worry about clothes? See how the flowers of the field grow. They do not labor or spin. 29 Yet I tell you that not even Solomon in all his splendor was dressed like one of these. 30 If that is how God clothes the grass of the field, which is here today and tomorrow is thrown into the fire, will he not much more clothe you—you of little faith? 31 So do not worry, saying, ‘What shall we eat?’ or ‘What shall we drink?’ or ‘What shall we wear?’ 32 For the pagans run after all these things, and your heavenly Father knows that you need them. 33 But seek first his kingdom and his righteousness, and all these things will be given to you as well. 34 Therefore do not worry about tomorrow, for tomorrow will worry about itself. Each day has enough trouble of its own."
+> **Matthew 6:24-34**
 
