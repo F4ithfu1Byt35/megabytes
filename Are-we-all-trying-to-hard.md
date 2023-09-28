@@ -20,8 +20,6 @@ custom_fields:
 
     field1: value 1
 
-    field2: value 2
-
 ---
 
 "So we are always confident, knowing that while we are at home in the body we are absent from the Lord. 7 For we walk by faith, not by sight. 8 We are confident, yes, well pleased rather to be absent from the body and to be present with the Lord.9 Therefore we make it our aim, whether present or absent, to be well pleasing to Him. 10 For we must all appear before the judgment seat of Christ, that each one may receive the things done in the body, according to what he has done, whether good or bad. "2 Corinthians 5:6-10
