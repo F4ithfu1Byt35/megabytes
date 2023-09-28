@@ -22,7 +22,7 @@ custom_fields:
 
 ---
 
-> <sup>6<s/up>  So we are always confident, knowing that while we are at home in the body we are absent from the Lord.
+> <sup>6</sup>  So we are always confident, knowing that while we are at home in the body we are absent from the Lord.
 > <sup>7</sup>  For we walk by faith, not by sight.
 > <sup>8</sup>  We are confident, yes, well pleased rather to be absent from the body and to be present with the Lord.
 > <sup>9</sup>  Therefore we make it our aim, whether present or absent, to be well pleasing to Him.
