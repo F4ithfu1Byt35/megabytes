@@ -10,7 +10,7 @@ taxonomy:
 
     category:
 
-        - Megabyte
+        - Megabytes
 
     post_tag:
 
