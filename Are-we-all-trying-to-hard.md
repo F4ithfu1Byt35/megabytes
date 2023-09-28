@@ -1,25 +1,10 @@
 ---
-
 title: Are we all trying to hard?
-
 menu_order: 1
 post_status: publish
-
-post_excerpt: This is a post excerpt test
 taxonomy:
-
     category:
-
         - Megabytes
-
-    post_tag:
-
-        - testing
-
-custom_fields:
-
-    field1: value 1
-
 ---
 
 > <sup>6</sup>  So we are always confident, knowing that while we are at home in the body we are absent from the Lord.
